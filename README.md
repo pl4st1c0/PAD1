@@ -11,6 +11,9 @@ placeholder for Post Apocalyptic Dreams 1
 
 ## stetics
 
-we put heavy weight (reliance) on stetics, since we don't believe in ultimate essences, superficialities play a central role in concrete affection in the instant moment
+we put heavy weight (reliance) on stetics, since we don't believe in ultimate essences, 
+superficialities play a central role in concrete affection in the instant moment
+
+
 
 (refs from https://www.instagram.com/sheetnoise/)
