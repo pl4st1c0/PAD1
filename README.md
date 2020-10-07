@@ -14,6 +14,7 @@ placeholder for Post Apocalyptic Dreams 1
 we put heavy weight (reliance) on stetics, since we don't believe in ultimate essences, 
 superficialities play a central role in concrete affection in the instant moment
 
-
+[<img src="stetics2.png" height="300" />](stetics2.png)
+[<img src="stetics1.png" height="300" />](stetics1.png)
 
 (refs from https://www.instagram.com/sheetnoise/)
