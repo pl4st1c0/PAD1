@@ -21,4 +21,4 @@ superficialities play a central role in concrete affection in the instant moment
 
 (some refs from https://www.instagram.com/sheetnoise/)
 
-some tunes on stetic: https://soundcloud.com/plastic0cruel/sets/h4x0r-n1ght
+some tunes on stetics: https://soundcloud.com/plastic0cruel/sets/h4x0r-n1ght
